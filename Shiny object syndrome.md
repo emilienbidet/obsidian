@@ -1,0 +1,1 @@
+Shiny object syndrome (SOS) is **a continual state of distraction brought on by an ongoing belief that there is something new worth pursuing**.
